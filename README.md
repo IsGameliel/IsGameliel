@@ -8,7 +8,7 @@
 
 - 💬 Feel free to ask me about any tech and programming related question
 
-- 📬 You can reach me via simvic@gmail.com
+- 📬 You can reach me via simvicpro@gmail.com
 
 ## Connect with me:
 [<img src="https://cdn-icons-png.flaticon.com/512/2111/2111463.png" width="50" height="50">](https://www.instagram.com/eugene_gameliel/)
