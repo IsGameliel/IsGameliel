@@ -61,11 +61,11 @@ I'm currently strengthening my skills in:
 
 ## 🤝 Connect With Me
 
-[<img src="https://cdn-icons-png.flaticon.com/512/2111/2111463.png" width="45" height="45">](https://www.instagram.com/eugene_gameliel/)
+[<img src="https://cdn-icons-png.flaticon.com/512/2111/2111463.png" width="45" height="45">](https://www.instagram.com/codewitheugene/)
 &nbsp;
 [<img src="https://cdn-icons-png.flaticon.com/512/2504/2504947.png" width="45" height="45">](https://twitter.com/ibiso_eugene)
 &nbsp;
-[<img src="https://cdn-icons-png.flaticon.com/512/3536/3536505.png" width="45" height="45">](https://www.linkedin.com/in/ibiso-eugene-466a93154/)
+[<img src="https://cdn-icons-png.flaticon.com/512/3536/3536505.png" width="45" height="45">](https://www.linkedin.com/in/[ibiso-eugene-466a93154/](https://linkedin.com/in/ibiso-eugene-5432153a0)/)
 &nbsp;
 [<img src="https://cdn-icons-png.flaticon.com/512/2504/2504903.png" width="45" height="45">](https://www.facebook.com/Simvic226/)
 &nbsp;
